@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+🔭 I’m currently working as a Senior Associate Consultant
+👯 I’m looking to collaborate Cloud content creation Specially on projects !!
+💬 If you have a moment, Lets discuss about cloud computing
+⚡ Fun fact - I fall asleep in seven minutes
+
+🌐 Socials:
